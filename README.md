@@ -16,5 +16,3 @@ Hi there 👋<br>I am just a guy who live and work in Ukraine🇺🇦 as Fronten
 [![](https://visitcount.itsvg.in/api?id=DmirtyYefymov&icon=7&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
